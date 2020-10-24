@@ -1,1 +1,1 @@
-# tdc-recife-2020
+# Girls Support Girls Community
